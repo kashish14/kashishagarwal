@@ -81,6 +81,7 @@ I’m deeply interested in:
 ---
 
 ## 📫 Let's Connect
+✉️ k@kashishmahant.com
 
 I’m open to conversations around:
 - product innovation
